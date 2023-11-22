@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @herizoleonard a student of sayna 
+- 👀 I’m interested in digital culture, especially in IT development. 
+- 🌱 I’m currently learning a lot about development and IT. 
+- 💞️ I'm looking for skills in the world of development and then collaborate in various development projects 
+- 📫 How to reach me herizo727@gmail.com
